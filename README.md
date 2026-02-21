@@ -1,2 +1,1 @@
-# old-ass-r64-scripts
-self explanatory
+THESE R VERY OLD N SOME DONT WORK!! IF U CAN U CAN TRY TO FIX EM IF U WANNA
